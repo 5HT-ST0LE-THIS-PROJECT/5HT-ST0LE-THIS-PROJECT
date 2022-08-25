@@ -24,7 +24,7 @@ He do this to make an illusion of big contribution to these projects.
 
 In addition, [the large number of meaningless commits](https://github.com/5HT/5HT/commits/master?after=219023c1880fac99fa347b6192445a4314ae533e+34&branch=master&qualified_name=refs%2Fheads%2Fmaster) puts him [at the top of GitHub users from Ukraine](https://github.com/gayanvoice/top-github-users/blob/main/markdown/public_contributions/ukraine.md), something he is incredibly proud of.
 
-As I have written before, this man is absolutely immoral. 
+As I have written before, this person is absolutely immoral. 
 
 He is very fond of scolding everyone for their lack of ethics, but his behavior is not even close to ethical. He [calls himself a non-binary person](https://tonpa.guru/stream/2022/2022-04-10%20Russian%20War%20against%20Groupoid%20Infinity.htm), but in his Twitter account [he acts as a transphobe](https://archive.fo/d6BnB), which is not surprising for the far-right nationalist that he is.
 
