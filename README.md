@@ -1,4 +1,4 @@
-# [@5HT](https://github.com/5HT) is misappropriating projects he had nothing to do with
+# [@5HT](https://github.com/5HT) aka Maksym Sokhatskyi aka Namdak Tonpa is misappropriating projects he had nothing to do with
 
 This person has made absolutely no effort to create the projects he pretends to be his own.<br>
 All his activities are code theft, license violations, and authorship erasure. 
